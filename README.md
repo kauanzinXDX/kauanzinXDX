@@ -3,8 +3,8 @@
 -  
 - 👋 EU SOU @kauanzinXDX
 - 🧐 Calmo e posturado
-- 🌱 Estudante do CAP/UEM
-- 💞️ I’m looking to collaborate on ...
+- 🥱 Estudante do CAP/UEM
+- 😋 Um seguidor do animal planet
 - 📫 Meu email de contato é [email](kauan.santos03@escola.pr.gov.br)
 
 <!---
